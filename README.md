@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @PasticcinoV2
 - 👀 I’m interested in Marketing and Online Media
 - 🌱 I’m currently learning Social Skills
-- 💞️ I’m looking to collaborate on ...
+- 💞️ I’m looking to collaborate on Project on Minecraft and Networks
 - 📫 How to reach me Pasticcino#4158
 
 <!---
